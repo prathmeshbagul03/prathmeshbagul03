@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @prathmeshbagul03
+- 👋 Hi, I’m @prathmeshbagul
 
